@@ -8,4 +8,9 @@
 
 
 
-![sashirajimage 1](https://user-images.githubusercontent.com/65448224/214508618-ef335bc0-a6fc-4222-ad22-5ec70b283c83.jpeg)
+
+![soorsinghimage 2](https://user-images.githubusercontent.com/65448224/214508750-beaf3351-9f2c-4463-9e53-dce43194d183.jpeg)
+
+
+
+![surajmalikimage 1](https://user-images.githubusercontent.com/65448224/214508822-9c623319-0d30-40c3-8908-e74d472c61f1.jpeg)
